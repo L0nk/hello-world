@@ -1,2 +1,2 @@
 # hello-world
-edit
+i just put school projects on here
